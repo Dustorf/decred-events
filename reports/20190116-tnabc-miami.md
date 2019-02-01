@@ -38,6 +38,7 @@ https://btcmiami.com/ and https://btcmiami.com/session/applications-of-blockchai
 
 4. Big Red was determined to not be an Ethereum plant. He was a great part of the team and contributed in a positive way. It was also great to see Zubair at an event, knowing that he's organizing the community with Michael in Toronto. Anshawblack was incredibly valuable because of his Spanish language skills. He also was inspired to begin a Decred podcast with the working title "Decred in Depth", which is a great outcome from getting the team together.
 
+5. I believe that the best way to attend this event, provided bear market conditions, would be as an earned speker to showcase Decred as a thought leading project of longevity.
 
 ## Photos & Video
 **Photos:**
